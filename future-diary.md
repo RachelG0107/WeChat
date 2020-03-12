@@ -1,0 +1,5 @@
+Benefit
+	I’m just a normal elder user how just use WeChat for my basic daily life. WeChat has been around with me for many years. Sending messages, paying with WeChat and online shopping within the app make my life so convenient. I don’t need to worry about calculating the amount of money or the changes that I get back. Able to book everything on the app, and it is so easy to navigate around. I can create groups chats with my friends and got to know new people and add them as friends. Also, the moments let me see what’s happening around me, and how are my friends and family are doing. I like the little games that I am able to play a lot. I can also read news or posts that I’m interested and know what’s happening around the world. 
+
+Disadvantages
+	I’m a user that want to express my ideas by publishing articles in WeChat and want more people to see. However, topics are still sensitive in China, and my articles get censored commonly. It is still a question and problem on what articles we can publish and not get it deleted by the officials, and it is still a problem on expressing my thoughts freely on this platform. 
